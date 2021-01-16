@@ -1,1 +1,2 @@
 # Creamy-Minstrome-Soup
+Heat oil in a large pot on medium high heat. Add onions and cook for 6-8 minutes. Use a wooden spoon to break up big peices. Add garlic and stir 30 seconds. Next, stir in the sauce and the broth. break noodles to inch long peices and stir in. With the heat on medium, cook for 12-15 minutes. Stir in the spinach and cook till wilted. Top with cheese and basil.
